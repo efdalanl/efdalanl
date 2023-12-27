@@ -1,4 +1,4 @@
-[![image](https://i.hizliresim.com/dekarlm.png)](https://hizliresim.com/dekarlm)
+[![image](https://i.hizliresim.com/8o8xhmm.png)](https://hizliresim.com/8o8xhmm)
 
 
 
